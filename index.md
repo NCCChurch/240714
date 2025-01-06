@@ -22,6 +22,6 @@
 
 ### ———————————————————
 
-## [主日证道汇总](https://nccchurch.github.io/Sermons/
+## [主日证道汇总](https://nccchurch.github.io/Sermons/)
 
 
